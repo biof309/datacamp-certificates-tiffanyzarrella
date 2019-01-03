@@ -7,4 +7,4 @@
 
 12.27 12 courses completed
 
-01.03 15 courses completed
+01.03 14 courses completed
